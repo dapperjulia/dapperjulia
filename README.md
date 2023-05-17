@@ -5,7 +5,7 @@
 - 🙂 18 anos
 - 📌 [Campo Bom](https://www.google.com/maps/place/Campo+Bom,+RS/@-29.6760875,-51.0495443,13z/data=!3m1!4b1!4m5!3m4!1s0x9519404def9b59b5:0xce6eb6fcdd2d22b5!8m2!3d-29.6747831!4d-51.0613111), RS
 - 🖥️ 4/4 - Técnico em Informátca - [IFSul Sapiranga](https://www.instagram.com/ifsulsapiranga/)
-- 🚀 Assistente de Inovação na [Arezzo&Co 💙](https://www.linkedin.com/company/3035-tech/)
+- 🚀 Assistente de Inovação na [Arezzo&Co 💙](https://ri.arezzoco.com.br)
 
 
 ## Conhecimentos em:
@@ -26,11 +26,9 @@
 </div>
 
 ## Minhas redes sociais:
-- [LinkedIn](https://www.linkedin.com/in/arthurbertoti/)
-- [Instagram](https://www.instagram.com/arthur_bertoti/)
+- [LinkedIn](https://www.linkedin.com/in/julia-dapper-253722206)
+- [Instagram](https://www.instagram.com/julia__dapper/)
 
-## Extra:
-- 🤾‍ Eu jogo handebol pela [AECB FEEVALE](https://www.instagram.com/handebol.campobom/)
 
 <hr>
 
