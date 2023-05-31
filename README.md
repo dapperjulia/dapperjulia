@@ -12,10 +12,10 @@
 - HTML e CSS
 - Java
 - Bootstrap
-- Python
   
 ## Estou estudando atualmente:
 - Python
+- Kotlin
   
 ## Minha atividade:
 <div>
